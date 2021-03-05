@@ -5,7 +5,7 @@
 CS Master&#39;s student with 5 years related work experience in Technology and Customer Service industries. Seeking full-time employment opportunities in a development-oriented role to develop my skills in a real-world environment and contribute to technological strides.
 
 ## <span style="color:blue"><ins>**CONTACT** </ins> </span> 
-(210) 883-7809 | San Antonio, Texas, 78023
+(210) 883-7809 | San Antonio, Texas, 78023\
 [LinkedIn/Comfort\_Olorunlero](https://linkedin.com/in/comfort-olorunlero) | [GitHub/Comfort\_Olorunlero](https://github.com/comfortlero)
 [SPriTELab\_Bio/Comfort\_Olorunlero](https://sprite.utsa.edu/people/colorunlero/) | [comfort.olorunlero@yahoo.com](mailto:comfort.olorunlero@yahoo.com)
 
